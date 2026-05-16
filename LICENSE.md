@@ -1,4 +1,4 @@
-# 
+# premium Wave for PC | Wave for Windows Integration | receipt-capture + time-tracking offers the most advanced Wave for PC | Wave for Windows integration, with receipt-capture and
 
 
 
